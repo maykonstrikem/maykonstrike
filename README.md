@@ -1,0 +1,2 @@
+# maykonstrike
+repositório 
